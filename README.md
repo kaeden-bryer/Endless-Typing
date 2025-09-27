@@ -14,7 +14,7 @@ Try Endless Typing Here: https://kaeden-bryer.github.io/Endless-Typing/homepage.
 
 ## 🥇Nomination for Big Ideas Oakland
 
-*The concept of Endless Typing was nominated for Oakland University's Big Ideas Oakland (BIO) award in 2023 when I was a freshman. I was asked alongisde other nominees to present my idea to major Oakland sponsors, donors, alumni and faculty in Meadowbrook Hall, and for that event brought Endless Typing to life. This is what I showed them*
+*The concept of Endless Typing was nominated for Oakland University's Big Ideas Oakland (BIO) award in 2023 when I was a freshman. I was asked alongisde other nominees to present my idea to major Oakland sponsors, donors, alumni and faculty in Meadowbrook Hall, and so I brought Endless Typing to life. This is what I showed them.*
 
 ## ❣️PS..
 
